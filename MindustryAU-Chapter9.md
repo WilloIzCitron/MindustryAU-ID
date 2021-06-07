@@ -1,102 +1,102 @@
-**Part 9 – Just a matter of Time**
+**Bagian 9 – Hanya masalah Waktu**
 
-Admiral was rushing through the corridor “Execute Emergency Protocol 01-49!” he shouted into the comms.
+Laksamana bergegas melewati koridor "Jalankan Protokol Darurat 01-49!" dia berteriak ke comms.
 
-The alarms started to beep, everyone panicked.
+Alarm mulai berbunyi, semua orang panik.
 
-“Evacuate to Planetary Launch Terminal! I repeat Evacuate to Planetary Launch Terminal!” he started shouting through the comms.
+“Evakuasi ke Terminal Peluncuran Planet! Saya ulangi Evakuasi ke Planetary Launch Terminal!” dia mulai berteriak melalui komunikasi.
 
-“Sir, Impact 0078 is down!” reported the Captain.
+"Tuan, Dampak 0078 turun!" lapor Kapten.
 
-“A Squad, protect the PLT! B Squad, try to hold Sharded as much as you can in the Desolate Rift!” the Admiral shouted.
+“Satu Pasukan, lindungi PLT! Pasukan B, coba pegang Sharded sebanyak mungkin di Desolate Rift!” teriak Laksamana.
 
-“We need time to evacuate!” he added and rushed to the last transport ship to PLR.
+“Kita perlu waktu untuk mengungsi!” tambahnya dan bergegas menuju kapal pengangkut terakhir menuju PLR.
 
 …
 
-It was no less chaos in PLT, everyone was running and hoping they will be safe there.
+Tak kalah ricuh di PLT, semua orang berlarian dan berharap aman di sana.
 
-“Try to protect with all your forces!” shouted the Admiral.
+"Cobalah untuk melindungi dengan semua kekuatanmu!" teriak Laksamana.
 
-“Our forces are failing in Desolate Rift” said the Commander.
+“Pasukan kita gagal di Desolate Rift” kata Komandan.
 
-“Attack with the Zeniths!” shouted the Admiral.
+“Serang dengan Zenith!” teriak Laksamana.
 
-“Uh, yeah, about that…” started the Commander.
+"Eh, ya, tentang itu ..." mulai Komandan.
 
 “…”
 
-“They destroyed them already…” he continued, while scratching his head.
+“Mereka sudah menghancurkannya…” lanjutnya sambil menggaruk kepalanya.
 
-“Fire with the Specters!?” asked the Admiral.
+"Tembak dengan Spectre !?" tanya Laksamana.
 
-“yeah, they, they killed them too.” continued the Commander.
+"Ya, mereka, mereka juga membunuh mereka." lanjut Komandan.
 
-“I didn’t think I would do this… Unleash the Reign!” shouted the Admiral.
+"Saya tidak berpikir saya akan melakukan ini ... Lepaskan Pemerintahan!" teriak Laksamana.
 
-“And you never will because that was the first thing they destroyed.” Said the Commander.
+"Dan Anda tidak akan pernah melakukannya karena itu adalah hal pertama yang mereka hancurkan." Kata Komandan.
 
-“Do I have to do everything he-“ ,said the Admiral. The ground started shaking.
+“Apakah saya harus melakukan semua yang dia-“, kata Laksamana. Tanah mulai bergetar.
 
-Admiral rushed outside and looked to the sky, a Nucleus Core was falling from the sky, ready to land.
+Laksamana bergegas keluar dan melihat ke langit, Inti Nukleus jatuh dari langit, siap mendarat.
 
-“They are here.” murmured the Admiral.
-
-…
-
-“Toxopids, get ready.” Said the Commander.
-
-“Attack in 5 ,4 ,3 ,2 ,1. Attack!” he shouted.
-
--One by one, all units of Crux got demolished by meltdowns, specters and foreshadows. Crux was losing many turrets and units but fail to stop Sharded.
-
-“CORE UNDER ATTACK! CORE UNDER ATTACK!” shouted the Commander.
-
-Admiral knew the only way is to escape, he quickly rushed to the InterPlanetary Accelerator,
-
-Smashed the launch button and jumped inside.
-
-The door closed, he heard the core explode, it was too late for everyone…
+"Mereka disini." gumam Laksamana.
 
 …
 
-The Accelerator started counting,
+"Toksopida, bersiaplah." Kata Komandan.
 
-“Launching in 10, 9”
+“Serangan dalam 5,4,3,2,1. Menyerang!" dia berteriak.
 
-The accelerator started taking damage.
+-Satu per satu, semua unit Crux dihancurkan oleh kehancuran, hantu, dan bayangan. Crux kehilangan banyak menara dan unit tetapi gagal menghentikan Sharded.
+
+“INTI DI BAWAH SERANGAN! INTI DI BAWAH SERANGAN!” teriak Komandan.
+
+Laksamana tahu satu-satunya cara adalah melarikan diri, dia dengan cepat bergegas ke InterPlanetary Accelerator,
+
+Menghancurkan tombol peluncuran dan melompat ke dalam.
+
+Pintu tertutup, dia mendengar inti meledak, sudah terlambat untuk semua orang ...
+
+…
+
+Akselerator mulai menghitung,
+
+“Peluncuran dalam 10, 9”
+
+Akselerator mulai menerima kerusakan.
 
 “8, 7, 6, 5, 4”
 
-Admiral panicked in an insane level.
+Laksamana panik dalam tingkat yang gila.
 
-“3, 2, 1, FIRE”
+“3, 2, 1, KEBAKARAN”
 
-The accelerator launched the pod in space faster than sound, the entire Serpulo shook with its force, Admiral collapsed to the floor and the pod successfully docked to the Crux InterGalactic Space Station.
+Akselerator meluncurkan pod di luar angkasa lebih cepat daripada suara, seluruh Serpulo bergetar dengan kekuatannya, Admiral ambruk ke lantai dan pod berhasil merapat ke Crux InterGalactic Space Station.
 
-The doors opened and the Admiral standed up.
+Pintu terbuka dan Laksamana berdiri.
 
-He walked to the command room, slowly.
-
-…
-
-“We lost Serpulo” he said.
-
-The Emperor smiled.
-
-“It’s a small price to pay for this intel.” Said the Emperor.
-
-“Now we know that there are others.” He continued.
-
-“Here, take this T6 and return to Tantros.” He added, while pointing one of the many Destroyers in the space fleet.
-
-“Yes, my lord.” Said the Admiral and left the room.
-
-“This battle has just begun.” Said the Emperor.
+Dia berjalan ke ruang komando, perlahan.
 
 …
 
-**Mindustry AU by RTOmega**
+“Kami kehilangan Serpulo” katanya.
 
-*Please give feedback and tell if I made any mistakes*
-You can contribute by making a pull request.
+Kaisar tersenyum.
+
+"Ini harga kecil yang harus dibayar untuk intel ini." Kata Kaisar.
+
+"Sekarang kita tahu bahwa ada orang lain." Dia melanjutkan.
+
+"Ini, ambil T6 ini dan kembali ke Tantros." Dia menambahkan, sambil menunjuk salah satu dari banyak Destroyer di armada luar angkasa.
+
+"Baik tuan ku." Kata Laksamana dan meninggalkan ruangan.
+
+"Pertempuran ini baru saja dimulai." Kata Kaisar.
+
+…
+
+**Mindustry AU oleh RTOmega**
+
+*Tolong beri umpan balik dan beri tahu jika saya membuat kesalahan*
+Anda dapat berkontribusi dengan membuat pull request.
