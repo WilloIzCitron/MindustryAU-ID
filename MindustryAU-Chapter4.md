@@ -46,7 +46,7 @@ Profesor menghela nafas, dia tahu dia harus berbuat lebih baik.
 
 "Kami menghancurkan lancer mereka, Tuan!" kata kapten.
 
-"Riak mereka menembak, tapi kita hampir mencapai inti mereka." Dia melanjutkan.
+"Ripple mereka menembak, tapi kita hampir mencapai inti mereka." Dia melanjutkan.
 
 Komandan mulai ragu.
 
