@@ -1,29 +1,29 @@
-**Part 5 - A Call for Reinforcements**
+**Bagian 5 - Panggilan untuk Bala Bantuan**
 
--Crux continued to fail to stop Sharded and now is getting attacked by it. 
+-Crux terus gagal menghentikan Sharded dan sekarang diserang olehnya.
 
-With no chance of success, they try their best to protect their bases.
+Tanpa peluang untuk berhasil, mereka mencoba yang terbaik untuk melindungi markas mereka.
 
-A message came from the Captain: “Our tactics are no match for their attack!”
+Sebuah pesan datang dari Kapten: "Taktik kami tidak cocok untuk serangan mereka!"
 
-Admiral sigh and replied: “How can they defeat us? Impossible! I order you to go and stop them in Salt Flats and Extraction Outpost!”
+Laksamana menghela nafas dan menjawab: “Bagaimana mereka bisa mengalahkan kita? Mustahil! Aku memerintahkanmu untuk pergi dan menghentikan mereka di Salt Flats and Extraction Outpost!”
 
-Captain didn’t even answer. He knew they would fail. They needed better guns, bigger units.
+Kapten bahkan tidak menjawab. Dia tahu mereka akan gagal. Mereka membutuhkan senjata yang lebih baik, unit yang lebih besar.
 
-Commander knew what he had to do.
+Komandan tahu apa yang harus dia lakukan.
 
-He walked to the comms, very slowly, entered the code and started sending a message.
+Dia berjalan ke komunikasi, sangat lambat, memasukkan kode dan mulai mengirim pesan.
 
-“My Lord…” He said.
+“Tuanku…” katanya.
 
-“Our forces are ineffective against Sharded.” He continued.
+“Pasukan kami tidak efektif melawan Sharded.” Dia melanjutkan.
 
-“We need reinforcements. We need  -“ He stopped for a few seconds.
+“Kami membutuhkan bala bantuan. Kita perlu—“ Dia berhenti selama beberapa detik.
 
-“T5s” he added.
+"T5s" tambahnya.
 
-“Very well,” said the Emperor. 
+"Baiklah," kata Kaisar.
 
-“But I don’t want any more failures or you will be replaced.” he added.
+"Tapi saya tidak ingin ada kegagalan lagi atau Anda akan digantikan." dia menambahkan.
 
 …
