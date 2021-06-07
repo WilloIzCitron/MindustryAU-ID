@@ -42,7 +42,7 @@ Profesor menghela nafas, dia tahu dia harus berbuat lebih baik.
 
 "Ya pak!" jawab Kapten.
 
-"Lepaskan * Tongkat Kerajaan *!" memerintahkan Komandan.
+"Lepaskan *Scepter*!" memerintahkan Komandan.
 
 "Kami menghancurkan lancer mereka, Tuan!" kata kapten.
 
