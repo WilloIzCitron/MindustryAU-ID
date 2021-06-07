@@ -1,60 +1,58 @@
-**Part 8 – Eclipse vs the Forces of Sharded**
+**Bagian 8 – Eclipse vs Forces of Sharded**
 
--Upper Commander was slowly approaching NPC.
+-Komandan Atas perlahan mendekati NPC.
 
-He got a message from the Admiral, “They have defeated all our forces.” He said.
+Dia mendapat pesan dari Laksamana, "Mereka telah mengalahkan semua pasukan kita." Dia berkata.
 
-“You are the only hope” he added.
+"Kamu adalah satu-satunya harapan" tambahnya.
 
-“We see the NPC in the horizon.” Said the Pilot.
+“Kami melihat NPC di cakrawala.” Kata Pilot.
 
-“Get the canons and lasers ready!” said the Upper Commander.
+"Siapkan kanon dan laser!" kata Panglima Tinggi.
 
-“Attack in 3, 2, 1, fire!” he shouted.
+"Serang dalam 3, 2, 1, tembak!" dia berteriak.
 
 …
 
--Blast after blast, Eclipse slowly got closer to the core, but it was taking dangerous damage.
+-Ledakan demi ledakan, Eclipse perlahan-lahan semakin dekat ke inti, tapi itu mengambil kerusakan berbahaya.
 
-“We are nearly at their core!” Pilot said.
+"Kami hampir mencapai inti mereka!" kata pilot.
 
-“But we don’t know how longer our cruiser can stand.” He added.
+"Tapi kita tidak tahu berapa lama kapal penjelajah kita bisa berdiri." Dia menambahkan.
 
-“Full power to the weapons!” Upper commander ordered.
+"Kekuatan penuh untuk senjata!" Komandan atas memerintahkan.
 
-“But sir, our shields are nearly down.” Captain said.
+"Tapi Pak, perisai kita hampir habis." kata Kapten.
 
-“I SAID ATTACK!” he ordered.
+"AKU MENGATAKAN SERANGAN!" dia memesan.
 
-“Yes sir!” answered the Pilot.
+"Ya pak!" jawab Pilot.
 
--They reached the core but the cyclones weren’t giving up.
+-Mereka mencapai inti tetapi topan tidak menyerah.
 
-“Come on, come on!” said the Upper Commander.
+"Ayo ayo!" kata Panglima Tinggi.
 
-“Shield down!” said the Pilot.
+“Perisai ke bawah!” kata Pilot.
 
-“Continue!” ordered the Upper Commander.
+"Terus!" perintah Panglima Tinggi.
 
-“Engine down, we are going to crash!” shouted the Captain.
+"Mesin mati, kita akan jatuh!" teriak Kapten.
 
-“Continue to fire!” shouted the Upper Commander.
+"Terus menembak!" teriak Komandan Tinggi.
 
-“WE MUST GO!” replied the Captain.
+"KITA HARUS PERGI!" jawab Kapten.
 
-“Not until we destroy this core!” said the Upper Commander.
+"Tidak sampai kita menghancurkan inti ini!" kata Panglima Tinggi.
 
-Captain and Pilot ran to the escape pod. They smashed the emergency button and watched the door close as the Upper Commander stayed there. Watching.
+Kapten dan Pilot berlari ke pod pelarian. Mereka menekan tombol darurat dan melihat pintu tertutup saat Komandan Tinggi tetap di sana. Menonton.
 
-The pod launched.
+Pod diluncurkan.
 
-“We should have saved the Upper Commander!” said the Captain.
+"Kita seharusnya menyelamatkan Komandan Atas!" kata Kapten.
 
-“It’s too late for him.” Replied the Pilot and looked at the giant destroyer while it crashed to the land. Failing once again…
+"Sudah terlambat untuknya." Jawab Pilot dan melihat ke arah kapal perusak raksasa saat itu jatuh ke darat. Gagal sekali lagi…
 
 …
 
 
 ![image](https://user-images.githubusercontent.com/62565267/120976922-756e4d80-c77b-11eb-8828-f6305c3c9fe8.png)
-
-
