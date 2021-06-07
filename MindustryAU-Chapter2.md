@@ -1,31 +1,31 @@
-**Part 2 - Chaos in the Craters**
+**Bagian 2 - Kekacauan di Kawah**
 
-2 Weeks have passed since the discovery of Sharded. 
+2 Minggu telah berlalu sejak penemuan Sharded.
 
-Everything seemed calm, then it happened. 
+Segalanya tampak tenang, lalu terjadi.
 
-Another core launched. However, it was from Frozen Forest. 
+Inti lain diluncurkan. Namun, itu dari Hutan Beku.
 
-The Core landed on The Craters. 
+Core mendarat di The Craters.
 
-The Commander gave the orders: “Find that core and destroy it!”
+Komandan memberi perintah: "Temukan inti itu dan hancurkan!"
 
-Captain replied: “We sent one of our latest and best units, the Zenith, a fully packed and armored battle ship with 2 rocket launchers.”
+Kapten menjawab: "Kami mengirim salah satu unit terbaru dan terbaik kami, Zenith, sebuah kapal perang lengkap dan lapis baja dengan 2 peluncur roket."
 
-Admiral Continued: “There is no chance they get away this time.” Then he smiled and looked to the giant battle ship.
+Laksamana Melanjutkan: "Tidak ada kemungkinan mereka lolos kali ini." Kemudian dia tersenyum dan melihat ke kapal perang raksasa.
 
 …
 
-“Are you ready to attack Pilot?” asked the Captain.
+"Apakah kamu siap untuk menyerang Pilot?" tanya Kapten.
 
-“Yes sir, all system clear, we see the enemy base.” Replied the Pilot.
+"Ya pak, semua sistem bersih, kami melihat markas musuh." Jawab Pilot.
 
-Commander smiled and said: “Fire at the scatter, if we destroy them, there is no chance they win this battle!”
+Komandan tersenyum dan berkata: "Tembak di pencar, jika kita menghancurkan mereka, tidak ada kemungkinan mereka memenangkan pertempuran ini!"
 
-Then pilot replied: “Si- - - There is a small prob- - -“
+Kemudian pilot menjawab: “Si- - - Ada masalah kecil- - -“
 
-Then the communication cut off. 
+Kemudian komunikasi terputus.
 
-Both Commander and the Admiral looked at each other, in shock. They realized that this was a bigger problem than they imagined. 
+Baik Komandan dan Laksamana saling memandang, kaget. Mereka menyadari bahwa ini adalah masalah yang lebih besar dari yang mereka bayangkan.
 
-This was no small attack, it was a total planetary Invasion!
+Ini bukan serangan kecil, itu adalah Invasi planet total!
