@@ -1,63 +1,63 @@
-**Part 4 – Mountains and Islands**
+**Bagian 4 – Pegunungan dan Pulau**
 
--After several attempts, Crux still continued to fail at defeating Sharded.
+-Setelah beberapa kali mencoba, Crux masih terus gagal mengalahkan Sharded.
 
-“Sir, it seems that they have launched to 2 sectors at the same time.” Said the Admiral.
+“Pak, sepertinya mereka telah meluncurkan ke 2 sektor secara bersamaan.” Kata Laksamana.
 
-“What sectors?” asked the Commander.
+“Sektor apa?” tanya Komandan.
 
-“Stained Mountains and Windswept Islands sir.” Said the Admiral.
+"Pegunungan Bernoda dan Kepulauan Windswept Pak." Kata Laksamana.
 
-“This is becoming a bigger problem every following day, send our best units!” said the Commander.
+"Ini menjadi masalah yang lebih besar setiap hari, kirim unit terbaik kami!" kata Komandan.
 
-“Behold, our new and powerful units: Navals” said the professor while entering the command center room.
+“Lihatlah, unit baru dan kuat kita: Angkatan Laut” kata profesor saat memasuki ruang pusat komando.
 
-“These new units have powerful missiles and swim in water.” Continued the professor.
+“Unit-unit baru ini memiliki rudal yang kuat dan berenang di air.” Lanjut profesor.
 
-Captain entered the room and started to talk, “Sir, our mechanics built a unit that will solve our problems in Stained Mountains!”
+Kapten memasuki ruangan dan mulai berbicara, "Tuan, mekanik kami membangun unit yang akan menyelesaikan masalah kami di Pegunungan Stained!"
 
-“What is it?” asked the professor.
+"Apa itu?" tanya profesor.
 
-“It’s the one and only, *Scepter*, it’s a walking battle station, 50 times more powerful then Fortress. Fully packed with a giant blaster and 2 mega cannons, this unit can destroy anything on its way.”
+“Ini satu-satunya, * Tongkat Kerajaan *, ini adalah stasiun pertempuran berjalan, 50 kali lebih kuat dari Benteng. Penuh dengan blaster raksasa dan 2 meriam mega, unit ini dapat menghancurkan apa pun di jalannya.”
 
-“I don’t want any failure this time! We must win this war, before its too late.” Said the Commander.
-
-…
-
-“They have defeated most of our naval units” said the captain.
-
-“I knew they would! For some reason, all of your units are useless professor!” shouted the Commander.
-
-Professor took the comms, “Release the bigger naval, I repeat, release the bigger naval!”
-
-Admiral and Commander looked at each other.
-
-“Professor, we were about to kill their core, but then a lancer killed our last naval!” shouted Captain.
-
-Professor sighed, he knew he need to do better.
+“Aku tidak ingin ada kegagalan kali ini! Kita harus memenangkan perang ini, sebelum terlambat.” Kata Komandan.
 
 …
 
-“Is our surprise attack ready?” asked the Commander.
+“Mereka telah mengalahkan sebagian besar unit angkatan laut kita” kata kapten.
 
-“Yes sir!” replied the Captain.
+“Aku tahu mereka akan melakukannya! Untuk beberapa alasan, semua unit Anda adalah profesor yang tidak berguna! ” teriak Komandan.
 
-“Unleash the *Scepter*!” ordered the Commander. 
+Profesor mengambil komunikasi, "Lepaskan angkatan laut yang lebih besar, saya ulangi, lepaskan angkatan laut yang lebih besar!"
 
-“We are destroying their lancers sir!” said the captain.
+Laksamana dan Komandan saling memandang.
 
-“Their Ripples are firing, but we are nearly at their core.” He continued.
+"Profesor, kami akan membunuh inti mereka, tetapi kemudian seorang lancer membunuh angkatan laut terakhir kami!" teriak Kapten.
 
-Commander started to hesitate.
+Profesor menghela nafas, dia tahu dia harus berbuat lebih baik.
 
-“5 hits” said the Captain and started counting.
+…
 
-“4, 3, 2, 1” …
+"Apakah serangan mendadak kita sudah siap?" tanya Komandan.
 
-Comms cut off.
+"Ya pak!" jawab Kapten.
 
-Admiral looked at the Commander.
+"Lepaskan * Tongkat Kerajaan *!" memerintahkan Komandan.
 
-They both knew they failed.
+"Kami menghancurkan lancer mereka, Tuan!" kata kapten.
 
--But it will just get worse from here.
+"Riak mereka menembak, tapi kita hampir mencapai inti mereka." Dia melanjutkan.
+
+Komandan mulai ragu.
+
+"5 pukulan" kata Kapten dan mulai menghitung.
+
+“4, 3, 2, 1”…
+
+Komunikasi terputus.
+
+Laksamana memandang Komandan.
+
+Mereka berdua tahu bahwa mereka gagal.
+
+-Tapi itu hanya akan menjadi lebih buruk dari sini.
