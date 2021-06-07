@@ -1,29 +1,29 @@
-**Part 3 – Shores UnderAtack**
+**Bagian 3 – Shores UnderAtack**
 
-“Sir, we have detected another launch, this time at the Craters.” Said the Admiral.
+"Tuan, kami telah mendeteksi peluncuran lain, kali ini di Kawah." Kata Laksamana.
 
-“Where did they launch to?” asked the Commander.
+"Di mana mereka meluncurkan?" tanya Komandan.
 
-“It seems they went to Ruinous Shores.” Replied the Admiral.
+“Sepertinya mereka pergi ke Ruinous Shores.” Jawab Laksamana.
 
-Commander thought for a moment and said: “What if we attack in small group but faster?”
+Komandan berpikir sejenak dan berkata: "Bagaimana jika kita menyerang dalam kelompok kecil tetapi lebih cepat?"
 
-“That way, we can kill them with ease.” Said the Captain.
+“Dengan begitu, kita bisa membunuh mereka dengan mudah.” Kata Kapten.
 
-Captain opened the comms and gave the orders: “Attack from air and ground! Target the core and this time, path find to the weakest defence!”
+Kapten membuka komunikasi dan memberi perintah: “Serang dari udara dan darat! Targetkan inti dan kali ini, temukan jalan menuju pertahanan terlemah!”
 
-“Yes Sir!” Said the Commando. Nodded the pilot.
+"Ya pak!" Kata Komando. Mengangguk pilot.
 …
 
-A message came from the Commando: “Sir, they have lancers, I don’t know how much longer we can stand.”
+Sebuah pesan datang dari Komando: "Pak, mereka memiliki lancer, saya tidak tahu berapa lama lagi kita bisa berdiri."
 
-“Don’t worry Commando! We have backup, we are sending the brand new, Fortress, it’s a fully armored walking tank with packed in hails.”
+“Jangan khawatir Komando! Kami memiliki cadangan, kami mengirim yang baru, Benteng, itu adalah tangki berjalan lapis baja lengkap dengan hujan es yang dikemas. ”
 
 …
 
 
 ![image](https://user-images.githubusercontent.com/62565267/120976373-f37e2480-c77a-11eb-8cd1-17e47a37a98e.png)
 
-“We lost the signal, the sector got captured.” Said the Admiral, with a crack in his voice.
+“Kami kehilangan sinyal, sektor ini tertangkap.” Kata Laksamana, dengan suara serak.
 
--However, what they didn’t know was, this was just the start…
+-Namun, yang tidak mereka ketahui adalah, ini baru permulaan...
