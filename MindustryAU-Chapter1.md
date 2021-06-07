@@ -1,43 +1,43 @@
-***Mindustry AU*** - The story of 2
+***Mindustry AU*** - Kisah 2
 
-Part 1 - Crash land 
+Bagian 1 - Tanah longsor
 
-It was a peaceful day, Crux was nearly in complete control of Serpulo. 
+Itu adalah hari yang damai, Crux hampir sepenuhnya mengendalikan Serpulo.
 
-Then, a small object fell...
+Kemudian, sebuah benda kecil jatuh...
 
-“What was that? A meteor perhaps?” Asked the upper Commander of Crux.
+"Apa itu tadi? Meteor mungkin?” Tanya Komandan Crux atas.
 
-“We don’t know, it went too fast for our radars.” said the Admiral.
+“Kami tidak tahu, itu terlalu cepat untuk radar kami.” kata Laksamana.
 
-“Send a small squad to Ground Zero and check what it is.” said the Commander.
+"Kirim pasukan kecil ke Ground Zero dan periksa apa itu." kata Komandan.
 
--Little did they know, it was the core of Sharded.
+-Sedikit yang mereka tahu, itu adalah inti dari Sharded.
 
-A few days passed, then the Commander asked, “What was the object that fall?”
+Beberapa hari berlalu, lalu Panglima bertanya, “Benda apa yang jatuh itu?”
 
-“Well...” Admiral said.
+"Yah ..." kata Laksamana.
 
-“None of our units returned, they are possible all killed or captured.” told the Admiral.
+"Tidak ada satu pun dari unit kami yang kembali, mereka mungkin semua terbunuh atau ditangkap." kata Laksamana.
 
 ...
 
-A week passed, then an object got launched from Ground Zero to Frozen Forest.
+Seminggu berlalu, lalu sebuah objek diluncurkan dari Ground Zero ke Frozen Forest.
 
-“What happened?” Asked the Commander.
+"Apa yang terjadi?" tanya Komandan.
 
-Admiral replied, “An unknown object launched from Ground Zero to Frozen forest sir.”
+Laksamana menjawab, "Sebuah objek tak dikenal diluncurkan dari Ground Zero ke hutan Beku Pak."
 
-The Commander stopped for a few moments and then realized, “THATS NOT AN OBJECT! THAT’S A CORE!”
+Komandan berhenti beberapa saat dan kemudian menyadari, “ITU BUKAN OBJEK! ITULAH INTI!”
 
-Admiral shouted in panic: “But that’s impossible!
+Laksamana berteriak panik: “Tapi itu tidak mungkin!
 
-There aren’t any known other civilization that can make cores!”
+Tidak ada peradaban lain yang dikenal yang bisa membuat inti!”
 
-“We know one now! Note it as S, with yellow, in the archive Captain. Name it Shard!”
+“Kami tahu satu sekarang! Catat sebagai S, dengan warna kuning, di arsip Kapten. Beri nama Shard!”
 
-“But sir” said the Admiral, “Shard is a type of core we have.”
+"Tapi Pak" kata Laksamana, "Shard adalah jenis inti yang kita miliki."
 
-“Then make it Shard-ed”, shouted the Commander and stared to the window.
+“Kalau begitu buat Shard-ed”, teriak Komandan dan menatap ke jendela.
 
--It has begun...
+-Telah dimulai...
