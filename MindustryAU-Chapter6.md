@@ -1,49 +1,49 @@
-**Part 6 – Fungal Pass-ed**
+**Bagian 6 – Penerbitan Jamur**
 
--Fungal Pass was small but it was the road to thorium and it was the only chance of Crux stopping Sharded for good.
+-Fungal Pass kecil tapi itu adalah jalan menuju thorium dan itu adalah satu-satunya kesempatan Crux menghentikan Sharded untuk selamanya.
 
-“Sir, Sharded is progressing. It is funny that they use arcs and duos against us in Fungal Pass.” Said the Admiral.
+“Tuan, Sharded sedang berkembang. Sangat lucu bahwa mereka menggunakan busur dan duo melawan kami di Fungal Pass. ” Kata Laksamana.
 
-Commander replied, “Send megas, polys, maces, daggers, crawler, fortress! Whatever we have! We must stop them!”
-
-…	
-
-“We are under attack!” said the Captain.
-
-“One core down and we are failing to defend.” He added.
-
-“We are sending more Megas!” Commander shouted.
-
-“We can’t, we don’t have any spare!” Admiral panicked.
-
-“Main Core under attack!” shouted the Captain.
-
-Captain panicked even more.
-
-“We are losing the secto-“ comms cut.
-
-“The Emperor will not be please.” Said the Commander, with a low and deep voice.
+Komandan menjawab, “Kirim megas, polys, mace, daggers, crawler, fortress! Apa pun yang kita miliki! Kita harus menghentikan mereka!”
 
 …
 
-The door got knocked. Commander knew what was about the happen.
+"Kami sedang diserang!" kata Kapten.
 
-He slowly started walking to the door. When the door got force opened from outside.
+“Satu inti turun dan kami gagal bertahan.” Dia menambahkan.
 
-“With the order of the Emperor.” Said the InterPlanetary Upper Commander.
+"Kami mengirim lebih banyak Mega!" Komandan berteriak.
 
-“You are demoted to solider.” He continued.
+"Kami tidak bisa, kami tidak punya cadangan!" Laksamana panik.
 
-Commander started to panic even more.
+"Inti Utama diserang!" teriak Kapten.
 
-Then the Upper commander broke the glass in the command center and threw Commander out with force. 
+Kapten semakin panik.
 
-“Does anyone else here to fail?!” he shouted.
+"Kami kehilangan sekte-" pemotongan komunikasi.
 
-No one talked.
+"Kaisar tidak akan menyenangkan." Kata Komandan, dengan suara rendah dan dalam.
 
-“Good” he said.
+…
 
-“This operation is now under the management of the Upper Commander by the order of the Emperor!”
+Pintu diketuk. Komandan tahu apa yang terjadi.
+
+Dia perlahan mulai berjalan ke pintu. Saat pintu dibuka paksa dari luar.
+
+"Dengan perintah Kaisar." Kata Komandan Atas Antarplanet.
+
+"Kamu diturunkan pangkatnya menjadi prajurit." Dia melanjutkan.
+
+Komandan mulai panik bahkan lebih.
+
+Kemudian Komandan Atas memecahkan kaca di pusat komando dan mengusir Komandan dengan paksa.
+
+"Apakah ada orang lain di sini yang gagal ?!" dia berteriak.
+
+Tidak ada yang berbicara.
+
+“Bagus” katanya.
+
+"Operasi ini sekarang di bawah manajemen Komandan Atas atas perintah Kaisar!"
 
 ...
