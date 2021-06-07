@@ -1,33 +1,33 @@
-**Part 7 – Failure once again!**
+**Bagian 7 – Gagal sekali lagi!**
 
-“Lets test this, *Sharded*” said the Upper Commander. 
+"Mari kita uji ini, *Sharded*" kata Komandan Atas.
 
-“Send a T4 to the overgrowth and see if it will fail” he added.
+"Kirim T4 ke pertumbuhan berlebih dan lihat apakah itu akan gagal" tambahnya.
 
-“Yes Sir!” replied the Admiral.
+"Ya pak!" jawab Laksamana.
 
 …
 
-“The T4 failed, we are slowly getting destroyed!” said the Captain.
+"T4 gagal, kita perlahan-lahan dihancurkan!" kata Kapten.
 
-Upper Commander thought deeply.
+Komandan Tinggi berpikir dalam-dalam.
 
-“We will stop them in NPC.” He said.
+“Kami akan menghentikan mereka di NPC.” Dia berkata.
 
-“But how?” asked the Admiral.
+"Tapi bagaimana caranya?" tanya Laksamana.
 
-“I will go there with my ship.” He added.
+"Aku akan pergi ke sana dengan kapalku." Dia menambahkan.
 
-“Get my Eclipse ready!” he shouted and left the command room.
+"Siapkan Eclipse saya!" dia berteriak dan meninggalkan ruang komando.
 
-Admiral didn’t know what type of ship an *Eclipse* was.
+Laksamana tidak tahu jenis kapal apa *Eclipse* itu.
 
-He quickly followed the Upper Commander.
+Dia dengan cepat mengikuti Komandan Atas.
 
-He was waiting outside, there was nothing. It was just open wasteland.
+Dia menunggu di luar, tidak ada apa-apa. Itu hanya gurun terbuka.
 
-Then a shadow blocked the sun. It was getting bigger and bigger every passing moment.
+Kemudian bayangan menghalangi matahari. Itu semakin besar dan besar setiap saat.
 
-Admiral was shocked, it was in front of him. The Giga Destroyer. It was the biggest Star Ship he has ever seen. Packed with Cruiser destroying lasers and super massive cannons. He was speechless while he watched the Upper Commander walk to the elevator. He stood there while the Star Destroyer flew into the horizon.
+Laksamana terkejut, itu ada di depannya. Penghancur Giga. Itu adalah Kapal Bintang terbesar yang pernah dilihatnya. Dikemas dengan Cruiser menghancurkan laser dan meriam super besar. Dia terdiam saat melihat Komandan Tinggi berjalan ke lift. Dia berdiri di sana sementara Penghancur Bintang terbang ke cakrawala.
 
 …
